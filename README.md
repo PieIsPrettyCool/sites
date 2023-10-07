@@ -7,7 +7,7 @@ https://pieisprettycool.github.io/sites/fortnite_freebattlepass_pcunblockver_32_
 ---
 https://pieisprettycool.github.io/sites/fortnitefree
 ---
-https://pieisprettycool.github.io/sites/goafy //No clue why but it doesnt work if you know how to fix it post it in the Pull requests!
+https://pieisprettycool.github.io/sites/goafy
 ---
 https://pieisprettycool.github.io/sites/goober
 ---
